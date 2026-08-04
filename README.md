@@ -5,6 +5,8 @@ He/They
 Mediocre Artist
 
 mentally ill, IWC always! Tonetags Preferred
+
+Also a minor don't be weird or u die irl
 <!--
 **doubIeimp/doubIeimp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
