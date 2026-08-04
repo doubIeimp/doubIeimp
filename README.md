@@ -1,4 +1,7 @@
-hi
+Java / Aaron
+He/They
+Objectum & A Yumeshipper
+IWC always, Tonetags Preferred
 <!--
 **doubIeimp/doubIeimp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
