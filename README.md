@@ -1,4 +1,4 @@
-Java / Aaron (or Heather)
+Java / Heather
 
 He/They
 
