@@ -1,6 +1,6 @@
 Java / Heather
 
-He/They
+She/They
 
 Mediocre Artist
 
