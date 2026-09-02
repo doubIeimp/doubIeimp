@@ -1,5 +1,7 @@
-bro genuinely how the fuck does this work
+![](https://files.catbox.moe/95lu0q.jpg)
 
-[atabook](https://suffocating.atabook.org/)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;placeholder placeholder placeholder
 
-![](https://files.catbox.moe/852xjb.webp)
+![](https://files.catbox.moe/1vte2e.webp) &nbsp;&nbsp; ![](https://files.catbox.moe/p7hd2s.webp)
+
+$\color{#FF0000}{"\ Rebel\ girl\ you\ are\ the\ queen\ of\ my\ world!\ "}$
