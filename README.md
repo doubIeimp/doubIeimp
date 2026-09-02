@@ -1,4 +1,4 @@
-Java / Heather
+Java / Jess
 
 She/They
 
@@ -11,4 +11,4 @@ Also a minor don't be weird or u die irl
 [atabook](https://suffocating.atabook.org/)
 [fluffle](https://fluffle.cc/mythicbitch)
 
-![](https://files.catbox.moe/lf9vy4.jpeg)
+![](https://files.catbox.moe/nycmdu.png)
