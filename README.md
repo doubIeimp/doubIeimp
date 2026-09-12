@@ -11,4 +11,4 @@ mentally ill, iwec at all times
 WATCH LETTERS FROM SIXTEEN NOWWW
 
 
-![](https://files.catbox.moe/iogzw5.jpg)
+![](https://files.catbox.moe/m11cil.png)
