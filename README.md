@@ -4,7 +4,7 @@ java or jess ᨳଓ she / any
 
 minor minor minorrrr
 
-jess fullfic + nicole kin ♡ nonsharing manon yume
+jess fullfic + nicole kin ♡
 
 mentally ill, iwec at all times
 
