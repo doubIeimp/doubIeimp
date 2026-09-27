@@ -1,4 +1,4 @@
-java or aaron 🐇 she/her
+java or aaron 🦄 she/her
 
 minor
 
