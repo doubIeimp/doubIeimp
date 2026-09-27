@@ -9,6 +9,3 @@ jess fullfic + nicole kin ♡
 mentally ill, iwec at all times
 
 WATCH LETTERS FROM SIXTEEN NOWWW
-
-
-![](https://files.catbox.moe/m11cil.png)
