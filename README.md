@@ -1,11 +1,9 @@
-bich if u wanna burger eat a burger
+java or aaron 🐇 she/her
 
-java or jess ᨳଓ she / any
+minor
 
-minor minor minorrrr
+jess from lf16 fullfic
 
-jess fullfic + nicole kin ♡
-
-mentally ill, iwec at all times
+horrible anxiety, w2i appreciated
 
 WATCH LETTERS FROM SIXTEEN NOWWW
